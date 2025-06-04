@@ -5,6 +5,6 @@
 
 
 
-My memory isn't the best so don't be surprised if I don't remember some eventttttt¿ I have amnesia;;;;;;;
+My memory isn't the best so don't be surprised if I don't remember some eventttttt¿ I have amnesia;;;;;;; *I'll probably forget my own name and yours srrryyyndnz*
 
-# <p align="center"> ![17489815208301026690700940356126](https://github.com/user-attachments/assets/16347dd3-9ec8-47a6-ab6f-34728eca72f4)
+# <p align="center"> ![17490679042741056033619513033229](https://github.com/user-attachments/assets/12a179b4-e7ea-483a-b6f5-0a86dc166fd1)
