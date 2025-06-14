@@ -11,3 +11,5 @@
 
 
 <p align="center"> My memory is a fragile vessel, selective if you can even call it that. I will probably constantly forget events, and people, even about myself.
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&bar_color=3eb9e6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&redirect=true)
