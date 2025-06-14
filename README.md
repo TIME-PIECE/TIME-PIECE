@@ -6,7 +6,7 @@
 
  <p align="center"> §~§∆©%®™©{÷π[©{%¢¢[©[𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃∆]
 
-  [strawpage](https://herr-ic.straw.page/) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@gps_jpg)
+  [strawpage](https://herr-ic.straw.page/) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@animatish)
 
 
 
