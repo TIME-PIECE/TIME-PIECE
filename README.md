@@ -15,7 +15,7 @@
 
 <p align="center"> My memory is a fragile vessel, selective if you can even call it that. I will constantly forget events, and people, even about myself
 
-<p align="center"> I slur 24/7 deal with it 
+<p align="center"> I slur 24/7  
 
 # <p align="center"> ![17502850413511352418816067577125](https://github.com/user-attachments/assets/3d1298ff-2dc6-49bb-9aca-02d6df6a0f2f)
 
