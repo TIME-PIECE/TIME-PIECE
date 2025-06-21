@@ -2,22 +2,25 @@
 
 
 
-# <p align="center"> ![17502848991146099633851712442866](https://github.com/user-attachments/assets/cc67eb74-37f7-4407-a0ca-27eb48a6acff)
+# <p align="center"> ![17505499239861463211390239256539](https://github.com/user-attachments/assets/c63ea644-ebf7-4bff-876b-58cc80553ae6)
 
 
 
 
- <p align="center"> Yoshka come back there's a small change in plans
+
+
+ <p align="center"> cfmot & bfdi fan
 
   [strawpage](https://herr-ic.straw.page/) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@animatish)
 
 
 
-<p align="center"> My memory is a fragile vessel, selective if you can even call it that. I will constantly forget events, and people, even about myself
+<p align="center"> My memory is a fragile vessel. I will constantly forget events, and people, even about myself
 
-<p align="center"> I slur 24/7  
+<p align="center"> + I slur 24/7  
 
-# <p align="center"> ![17502850413511352418816067577125](https://github.com/user-attachments/assets/3d1298ff-2dc6-49bb-9aca-02d6df6a0f2f)
+# <p align="center"> ![17505498874813760720480710797801](https://github.com/user-attachments/assets/0c01fc1e-ece5-413d-9e23-da2873626019)
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&bar_color=246dff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&redirect=true)
