@@ -17,7 +17,7 @@
 
 <p align="center"> My memory is a fragile vessel. I will constantly forget events, and people, even about myself
 
-<p align="center"> + I slur 24/7  
+<p align="center"> + BPD + ADHD  
 
 # <p align="center"> ![17505498874813760720480710797801](https://github.com/user-attachments/assets/0c01fc1e-ece5-413d-9e23-da2873626019)
 
