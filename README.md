@@ -1,7 +1,5 @@
-
-
-
-
+<p align="center"> 𐙚 𓏵𓏵𓏵𓏵𐙚
+ 
 # <p align="center"> ![17508071267001952671327214702002](https://github.com/user-attachments/assets/c142b78d-44d4-4f49-b28d-0283ea71e77b)
 
 
