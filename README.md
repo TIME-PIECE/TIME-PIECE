@@ -17,3 +17,4 @@
 
 <p align="center"> BPD + ADHD + Suspected NPD
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ff9659&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&redirect=true)
