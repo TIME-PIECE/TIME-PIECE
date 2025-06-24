@@ -1,13 +1,13 @@
-<p align="center"> 𐙚 𓏵𓏵𓏵𓏵𐙚
+
  
-# <p align="center"> ![17508071267001952671327214702002](https://github.com/user-attachments/assets/c142b78d-44d4-4f49-b28d-0283ea71e77b)
+# <p align="center"> ![17508086493994360399156542438027](https://github.com/user-attachments/assets/c08a38e4-1f7b-421b-8d25-46da00ab5923)
 
 
 
 
 
 
- <p align="center"> + Constantly changing my profile
+ <p align="center"> interact with caution
 
   [strawpage](https://herr-ic.straw.page/) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@animatish)
 
