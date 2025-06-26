@@ -7,7 +7,7 @@
  <p align="center"> interact with caution
  
 
-  [strawpage](https://herr-ic.straw.page/) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@paperpuppeteer)
+  [strawpage](https://paperpuppeteer.straw.page) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@paperpuppeteer)
 
 
 
