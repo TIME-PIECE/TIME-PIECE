@@ -1,5 +1,4 @@
-
-୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ <p align="center">![17508972155914146659338595590556](https://github.com/user-attachments/assets/574e3dc0-0112-4c6d-9846-0bf93041c3ba)
+୨ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ୨୧ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ୧ <p align="center">![17508972155914146659338595590556](https://github.com/user-attachments/assets/574e3dc0-0112-4c6d-9846-0bf93041c3ba)
 
 
 
@@ -8,7 +7,7 @@
  <p align="center"> interact with caution
  
 
-  [strawpage](https://herr-ic.straw.page/) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@animatish)
+  [strawpage](https://herr-ic.straw.page/) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@paperpuppeteer)
 
 
 
