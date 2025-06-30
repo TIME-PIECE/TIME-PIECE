@@ -1,4 +1,4 @@
-‎ <p align="center">![17513147172036310940202487409796](https://github.com/user-attachments/assets/27227296-9cd5-473c-aa29-105cf1cb58ca)
+‎ <p align="center">![17513148928034775280947097499453](https://github.com/user-attachments/assets/fd523d14-a3ab-473c-b270-1ea2ae5da241)
 
 
 
@@ -9,7 +9,9 @@
 
 
 
- <p align="center"> 1+4 ㅤㅤkins +ㅤㅤ art by me (ㅤdn repostㅤ)
+
+
+ <p align="center"> 1+4 ㅤㅤkins +ㅤㅤ art by m e
  
 
   [strawpage](https://paperpuppeteer.straw.page) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@paperpuppeteer)
