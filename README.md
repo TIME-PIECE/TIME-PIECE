@@ -1,4 +1,4 @@
-‎ <p align="center">![17512189370204239258814375459255](https://github.com/user-attachments/assets/2b0f814b-1d54-41d5-bb15-d5847ad8a2db)
+‎ <p align="center">![17513142299202062863706914473810](https://github.com/user-attachments/assets/190932b4-03e2-4032-b795-8c3aac1928f9)
 
 
 
@@ -7,7 +7,8 @@
 
 
 
- <p align="center"> interact with caution
+
+ <p align="center"> 1+4 ㅤㅤkins +ㅤㅤ art by me (ㅤdn repostㅤ)
  
 
   [strawpage](https://paperpuppeteer.straw.page) <p align="center"> [rentry](https://rentry.co/cartoonia) <p align="right"> [prns](https://en.pronouns.page/@paperpuppeteer)
