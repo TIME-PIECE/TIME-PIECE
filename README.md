@@ -1,35 +1,15 @@
-‎ <p align="center">![17514704409075354308707594749406](https://github.com/user-attachments/assets/0e71adda-a841-4352-820a-e7571869d978)
+‎ <p align="center"><img width="732" height="78" alt="17523415809683731904840883743263" src="https://github.com/user-attachments/assets/811390fe-bf48-4405-a1a6-455a0c8433b3" />
 
-<p align="center">‎ ʚɞ‎  rory ‎ ‎ ‎ ‎ ‎ ‎ h/him‎ ‎ ‎ ‎ ‎ ‎ ‎dx bpdadhd‎ ‎ ‎ ‎ ‎ ‎ c+h+k‎ ‎ ‎ ‎ ‎ ‎ 1‎ ‎·‎ 4‎ ‎ ‎  ‎ ‎ kin ‎ ‎ ‎ ‎ ‎ ‎ osc ‎ ‎ ‎ ‎ ‎ ‎ ndf‎ ‎ ‎ ‎ ‎ ‎ unusualyikes‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ipx ʚɞ
+<p align="center">‎   rory ‎ ‎ ‎ ‎ ‎ ‎ h/him‎ ‎ ‎ ‎ ‎ ‎ ‎dx bpdadhd‎+ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎psychogenic amnesia ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ c+h+k‎ ‎ ‎ ‎ ‎ ‎ 1‎ ‎mortis ‎ ‎  ‎ ‎ kin ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ osc ‎ ‎ ‎ ‎ ‎ ‎ ndf‎ ‎ ‎ ‎ ‎ ‎ unusualyikes‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ipx 
 
-‎ <p align="center">![17514692952223024773723258093081](https://github.com/user-attachments/assets/60ca40ee-9a00-4c0d-bbeb-7d49d81e5aee)
-
-
-
-
-
-
-
-
-
-
-
-
-
- 
- 
-
-  ˚₊‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ᘏ⑅ᕱ
-  
-˚દ﹕ᜊ [![17514709287573882317382960010832](https://github.com/user-attachments/assets/efb65077-ea7b-4463-898e-07f06b0b01ab)](https://rentry.co/cartoonia)‎ ‎ ‎ ‎ ₊˚‎ ‎ ‎ ‎ ⊹ <p align="right">˚દ﹕
-[![17514711050332254303029971938122](https://github.com/user-attachments/assets/c09b40ed-9e3e-4548-9845-b96120af3d7a)](https://en.pronouns.page/@paperpuppeteer)
+‎ <p align="center"><img width="768" height="768" alt="17523404188513176986138455666858" src="https://github.com/user-attachments/assets/b8c7e0ad-d630-4318-8629-c3ab6c9f663f" />
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+ㅤ <p align="center">[strawpage](https://paperpuppeteer.straw.page) ₊˚‎ [prns](https://en.pronouns.page/@paperpuppeteer)
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
- ‎ ₊˚⊹♡⃕ ◡̈ ꒰ ‎ <p align="center"> [![17514707407193744577768539010015](https://github.com/user-attachments/assets/cc50fc35-6be4-4674-8d61-4b333ab7ba69)](https://paperpuppeteer.straw.page)
-
-‎ ‎ ‎ ‎ ‎ ‎ ₊˚⊹
+ ‎ 
 
 
+‎ ‎ <p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=0000ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=0000ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-‎ <p align="center">![17514704409075354308707594749406](https://github.com/user-attachments/assets/0e71adda-a841-4352-820a-e7571869d978)
+‎ ‎ <p align="center"><img width="732" height="78" alt="17523415809683731904840883743263" src="https://github.com/user-attachments/assets/811390fe-bf48-4405-a1a6-455a0c8433b3" />
