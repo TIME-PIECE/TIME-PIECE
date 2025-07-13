@@ -7,7 +7,7 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 
  <p align="center">‎   msi‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ stomach‎ ‎  book‎ ‎ ‎ ‎ ‎ ‎ she wants revenge‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ or3o‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎  ‎ and‎ ‎ ‎ ‎  one‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎caleb hyles‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎maretu‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ miracle musical‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ d2s1‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ bbsi‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ lemon demon‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ tlts
   
-ㅤ <p align="center">[strawpage](https://paperpuppeteer.straw.page) ₊˚‎ [prns](https://en.pronouns.page/@paperpuppeteer)
+ㅤ <p align="center">[strawpage](https://paperpuppeteer.straw.page) [prns](https://en.pronouns.page/@paperpuppeteer)
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
  ‎ <p align="center"> "おい、みんな君がバカだと思ってるよ
