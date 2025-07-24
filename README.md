@@ -23,5 +23,5 @@
 僕は君がバカだと思う"‎
 
 
-‎ ‎ <p align="center">[![spotify-github-profile][![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=0090ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+‎ ‎ <p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ocx5nuhqpzhylmbpjmm5t6cubm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=0090ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  <p align="center">‎  extremely unstable person
