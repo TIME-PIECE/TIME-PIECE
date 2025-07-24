@@ -1,6 +1,6 @@
 
 
-<p align="center">‎   rory ‎ ‎ ‎ ‎ ‎ ‎ h/him‎ ‎ ‎ ‎ ‎ ‎ ‎dx bpdadhd‎+ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎psychogenic amnesia ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎ sus cd‎ ‎ ‎ ‎ ‎ ‎ psycho‎ ‎ ‎ ‎ ‎ ‎ osdd ‎ ‎ ‎ ‎ c+h+k‎ ‎ ‎ ‎ ‎ ‎ 1 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎mortis ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ osc ‎ ‎ ‎ ‎ ‎ ‎ ndf‎ ‎ ‎ ‎ ‎ ‎ unusualyikes‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ipx ‎ ‎ ‎ ‎ ‎ ‎
+<p align="center">‎   rory ‎ ‎ ‎ ‎ ‎ ‎ h/him‎ ‎ ‎ ‎ ‎ ‎ ‎dx bpdadhd‎+ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎psychogenic amnesia ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎ susp. cd‎ ‎ ‎ ‎ ‎ ‎ psycho‎ ‎ ‎ ‎ ‎ ‎ DID ‎ ‎ ‎. ‎ ‎ ‎ ‎ c+h+k‎ ‎ ‎ ‎ ‎ ‎ 1 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎mortis ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ osc ‎ ‎ ‎ ‎ ‎ ‎ ndf‎ ‎ ‎ ‎ ‎ ‎ unusualyikes‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ipx ‎ ‎ ‎ ‎ ‎ ‎
 
 
 ‎ <p align="center"><img width="610" height="372" alt="17533196103681712167141307071615" src="https://github.com/user-attachments/assets/375180b6-80cf-4127-b8d4-4bad585aceb8" />
