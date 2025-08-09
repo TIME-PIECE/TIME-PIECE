@@ -1,6 +1,6 @@
 
 
-<p align="center">‎   rory ‎ ‎ ‎ ‎ ‎ ‎ h/him‎ ‎ ‎ ‎ ‎ ‎ ‎dx bpdadhd‎+ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎psychogenic amnesia ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎ susp. cd‎ ‎ ‎ ‎ ‎ ‎ psycho‎sis/F20.1 ‎ ‎ ‎ ‎ ‎ DID ‎ + ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎BODILY  ‎ ‎ ‎ ‎+ ‎ ‎15 ‎. ‎ ‎ ‎ ‎ c+h+k‎ ‎ ‎ ‎ ‎ ‎ 1 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎mortis ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ osc ‎ ‎ ‎ ‎ ‎ ‎ ndf‎ ‎ ‎ ‎ ‎ ‎ unusualyikes‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ipx ‎ ‎ ‎ ‎ ‎ ‎
+<p align="center">‎   rory ‎ ‎ ‎ ‎ ‎ ‎ h/him‎ ‎ ‎ ‎ ‎ ‎ ‎dx bpdadhd‎+ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎psychogenic amnesia ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎ susp. cd‎ ‎ ‎ ‎ ‎ ‎ psycho‎sis/F20.0 ‎ ‎ ‎ ‎ ‎ DID ‎ + ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎BODILY  ‎ ‎ ‎ ‎+ ‎ ‎15 ‎. ‎ ‎ ‎ ‎ c+h+k‎ ‎ ‎ ‎ ‎ ‎ 1 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎mortis ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ osc ‎ ‎ ‎ ‎ ‎ ‎ ndf‎ ‎ ‎ ‎ ‎ ‎ unusualyikes‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ipx ‎ ‎ ‎ ‎ ‎ ‎
 
 
 ‎ <p align="center">![1754694551773314909096898741410](https://github.com/user-attachments/assets/40d8050b-3555-417b-aa58-f1cfcf555889)
