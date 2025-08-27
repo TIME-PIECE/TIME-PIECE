@@ -1,6 +1,7 @@
 <p align="center">‎   Rory ‎ ‎ ‎ ‎ ‎ ‎ h/him‎ ‎ ‎ ‎ ‎ ‎ ‎DX. BPDADHD‎+ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎Psychogenic Amnesia ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎‎‎BODILY  ‎ ‎ ‎ ‎+ ‎ ‎15 ‎+‎   ‎  ‎‎ CD+    ‎   ‎  ‎ ‎  ‎‎ Psychosis‎ ‎ ‎ ‎  ‎  ‎  ‎  ‎ ‎‎ SUSP.  ‎ ‎ ‎ ‎ ‎ F20.0 ICD-10+ ‎ ‎  ‎  ‎  ‎  ‎ ‎ OSDD. ‎  ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ PT: ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ "‎‎c+h+k‎" ‎ ‎ ‎ ‎ ‎ 1 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎"Mortis" ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ OSC ‎ ‎ ‎ ‎ ‎ ‎ Ndf‎ ‎ ‎ ‎ ‎ ‎ Unusual Yikes‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
  
-‎ <p align="center"><img width="250" height="250" alt="17559963699475987765549937475850" src="https://github.com/user-attachments/assets/120282e2-1240-495f-8180-57149d75e706" />
+‎ <p align="center"><img width="260" height="260" alt="17562562527895514246552297509257" src="https://github.com/user-attachments/assets/b8574ecf-4753-4217-a665-e43b6730cf6b" />
+
 
 
 
