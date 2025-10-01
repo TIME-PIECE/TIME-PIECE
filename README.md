@@ -6,7 +6,7 @@
 
 
   
-<p align="center"> <img width="90" height="90" alt="17592800172698310168436580739001" src="https://github.com/user-attachments/assets/7dda811b-e5cb-417f-b36f-661b51525847" />
+<p align="center"> <img width="40" height="40" alt="17592800172698310168436580739001" src="https://github.com/user-attachments/assets/7dda811b-e5cb-417f-b36f-661b51525847" />
 
 
 
