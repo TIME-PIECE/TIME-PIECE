@@ -12,6 +12,6 @@
 
 
 
-<p align="center"> RBYI
+<p align="center"> rbyi, thanks
 
 
