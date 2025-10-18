@@ -12,6 +12,6 @@
 
 
 
-<p align="center"> rbyi, thanks
+<p align="center"> inform yourself before interacting, thank you.
 
 
