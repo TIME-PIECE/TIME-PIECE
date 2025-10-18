@@ -11,7 +11,6 @@
 
 
 
+‎   ‎     ‎  ‎  ‎  ‎‎     ‎  ‎‎     ‎  ‎‎‎   ‎     ‎  ‎‎     ‎  ‎‎     ‎  ‎‎  ‎ ‎‎  ‎  ‎‎  ‎ ‎‎  ‎ ‎‎  ‎   ‎‎  ‎    ‎[rbyi](https://pronouns.cc/@sleepwalker)
 
-<p align="center"> inform yourself before interacting, thank you.
-
-
+‎‎  ‎
