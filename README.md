@@ -1,8 +1,13 @@
  ㅤㅤㅤㅤ     ‎[rbyi](https://pronouns.cc/@sleepwalker)
 
 ‎‎  ‎
-<p align="center"> * Writer, digital animator, artist, illustrator & character impersonator. <img width="20" height="20" alt="17614435212146603127838854948790" src="https://github.com/user-attachments/assets/12e19a07-09f0-4e49-8414-0737bc4f3cf4" />
+<p align="center"> * Writer, digital animator, artist, illustrator & character impersonator. <img width="20" height="20" alt="17615112951461015323632606816269" src="https://github.com/user-attachments/assets/5d0a74fd-a4ff-41e3-826c-e7b44bc8ef21" />
+
 
   
-<p align="center"><img width="90" height="90" alt="17614435212146603127838854948790" src="https://github.com/user-attachments/assets/df2d92f5-b157-4110-a1a1-22d4b7c00a1f" />
+<p align="center"><img width="180" height="180" alt="1761512100731124856755052940483" src="https://github.com/user-attachments/assets/c8f679a3-30c0-4aec-9de5-2c9d9f133f9d" />
+
+
+
  
+<p align="center"> * Philosophy, astronomy and psychology. <img width="20" height="20" alt="17615112951461015323632606816269" src="https://github.com/user-attachments/assets/5d0a74fd-a4ff-41e3-826c-e7b44bc8ef21" />
